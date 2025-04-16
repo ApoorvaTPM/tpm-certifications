@@ -16,4 +16,4 @@
 
 ### 🚀 Certified ScrumMaster® (CSM®)  
 - Issued by: Scrum Alliance  
-- 🔗 [View Certificate]([https://drive.google.com/your-csm-link](https://drive.google.com/file/d/1hmd1fYIG5mU7BWAi5i0TrHTMLNGWce3I/view?usp=sharing))
+- 🔗 [View Certificate]([https://drive.google.com/your-csm-link](https://drive.google.com/file/d/1hmd1fYIG5mU7BWAi5i0TrHTMLNGWce3I/view?usp=sharing)
